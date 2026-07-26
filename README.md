@@ -1,5 +1,15 @@
-ᴛᴇsᴛɪɴɢ.
+⚡; {ᴛᴇsᴛɪɴɢ.}
+
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Oswald&pause=1000&color=F73E29&background=BA0E3139&width=435&lines=Chaos+Control!+" alt="Typing SVG" /></a>
-⚡; ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ʟɪғᴇғᴏʀᴍ ɪs ʜᴇʀᴇ. 
+⚡; ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ʟɪғᴇғᴏʀᴍ ɪs ʜᴇʀᴇ.
+
+<img src="Без названия74_20260726164959.png">
+
+{ ɴᴀᴍᴇ's sʜᴀᴅᴏᴡ ᴏʀ sʜᴀᴅ, ɪғ ʏᴏᴜ ᴡᴀɴᴛ. 
+
+ɴᴏ ɴᴇᴇᴅ ᴛᴏ sʜʏ ᴛᴏ ᴄᴜᴅᴅʟᴇ ᴡɪᴛʜ ᴍᴇ. ʏᴏᴜ ᴄᴀɴ ᴄᴜᴅᴅʟᴇ ᴡɪᴛʜ ᴍᴇ ɪғ ʏᴏᴜ ᴡᴀɴᴛ. }
+
+ɪ ʟᴏᴠᴇ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ʙᴇ ᴍʏ ɴᴇᴡ ғʀɪᴇɴᴅ.
 
 ![](https://komarev.com/ghpvc/?username=edgyhog&color=F34C22&label=ᴘᴇᴏᴘʟᴇ)
